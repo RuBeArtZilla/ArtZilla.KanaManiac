@@ -1,0 +1,1 @@
+# ArtZilla.KanaManiac
